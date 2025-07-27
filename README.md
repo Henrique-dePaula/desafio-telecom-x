@@ -78,7 +78,7 @@ Caso tenha sugestões ou dúvidas, entre em contato:
 
 **Henrique de Paula**  
 📧 [750Henrique@gmail.com]  
-🌐 [linkedin.com/in/seu-perfil](https://www.linkedin.com/in/henrique-depaula/)
+🌐 [linkedin.com/in/Henrique-dePaula](https://www.linkedin.com/in/henrique-depaula/)
 
 ---
 
